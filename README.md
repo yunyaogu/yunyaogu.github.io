@@ -64,21 +64,3 @@ Automatic link: <https://github.com>
 
 ![GitHub Logo](https://github.githubassets.com/images/modules/logos_page/GitHub-Mark.png)
 
----
-
-## Code
-
-Inline code: `console.log("Hello World");`
-
-Indented code block:
-    
-    function test() {
-      console.log("Indented code block");
-    }
-
-Fenced code block:
-
-```javascript
-function test() {
-  console.log("Fenced code block");
-}
