@@ -28,6 +28,6 @@ Vimeo link: [vimeo](https://vimeo.com/user239071263)
 
 ## Images
 
-![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*lnha3jHStWXqQSdZmy2RYA@2x.jpeg)
+![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*qH1jbnLk-9NKJCqDMB4ZLA.png)
 
 
