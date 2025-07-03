@@ -22,12 +22,12 @@ ___
 
 Medium Blog link: [medium](https://medium.com/@yunyaogu)
 Vimeo link: [vimeo](https://vimeo.com/user239071263)
-
+Design Company link: [My Design Company](https://divinedesignagency.wordpress.com/)
+English Teaching Blog link: [English Teaching Business Blog](https://www.xiaohongshu.com/user/profile/5b9ae55bacffcf0001de5ef7?tab=note)
 
 ---
 
 ## Images
 
 ![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*qH1jbnLk-9NKJCqDMB4ZLA.png)
-
 
