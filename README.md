@@ -14,6 +14,7 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 ## My Action of Giving: Just buy more books for yourself than say that you have a big family to feed; ask yourself— what is it that makes you a despicable snake who never contributes a cent? At least snakes have dead skins that can be used to treat disease in TCM. In a world that being caring and kind is a weakness, moral ethics are the lowest bar to refrain people from doing evil, as a failed designer who exited consulting, I’d still be the failed designer who got two 4 out of 5 performance reviews but still exited consulting, walking away from drawing a big “bubbly foam” of design than say I have a big family to feed to beg for a designer salary. Hope you rise and shine with the ladder called chaos and no shame.
+## I own my failure, so I walked away from design and started over. What about you?
 
 ___
 
