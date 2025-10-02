@@ -29,6 +29,7 @@ ___
 ## Links
 
 Medium Blog link: [medium](https://medium.com/@yunyaogu)
+LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
 Vimeo link: [vimeo](https://vimeo.com/user239071263)
 Design Company link: [My Design Company](https://divinedesignagency.wordpress.com/)
 
