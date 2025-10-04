@@ -39,3 +39,19 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 
 ![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*qH1jbnLk-9NKJCqDMB4ZLA.png)
 
+
+---
+
+##  DO NOT MESS WITH THE DESIGNER WHO KNOWS Python 3 Coding:
+####  The Making of Next Level Alpha Bussines Owner - Try my self coded Python Game called "Massage Technician Raising Game", write whoever invented the Micro-aggresion to be your technician.
+
+![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/0TEhraUmYiR7.webp)
+
+####  The Next Level UX of Civilized Mental Combat - DM for code to have Plenty of Technician Assets to Be Alpha Plus
+
+![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/bABCSE6zC0CY.webp)
+
+####  The Next Level Python3 Code of Civilized Mental Combat - DM for further collaborations on UX, UI, coding, scaling, iteration, user data deployment to build the Stripe of Healthcare Service
+
+![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/PPI2sRqrjCW2.webp)
+
