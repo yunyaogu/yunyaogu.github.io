@@ -43,15 +43,19 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 ---
 
 ##  DO NOT MESS WITH THE FORMER DESIGNER WHO KNOWS Python 3 Coding:
-####  The Making of Next Level Alpha Bussines Owner - Try my self coded Python Game called "Massage Technician Raising Game", write down whoever invented the Micro-aggresion to be your technician.
+####  Need Grabbable Technicians to Gain Alpha Confidence, DM for Collab - Try my self coded Python Game called "Massage Technician Raising Game", write down whoever invented the Micro-aggresion to be your technician.
 
 ![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/0TEhraUmYiR7.webp)
 
-####  The Next Level UX of Civilized Mental Combat - DM for code to have Plenty of Technician Assets to Be Alpha Plus
+####  Why use monopolized search engines when you can self code to combat? - 1st draft prototype of PythonGame Interface - to be iterated
 
 ![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/bABCSE6zC0CY.webp)
 
-####  The Next Level Python3 Code of Civilized Mental Combat - DM for further collaborations on UX, UI, coding, scaling, iteration, user data deployment to build the Stripe of Healthcare Service
+####  Why use monopolized search engines when you can self code to combat? - 1st draft prototype of PythonGame Interface - to be iterated
 
 ![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/PPI2sRqrjCW2.webp)
+
+####  Our Slogan: Need Alpha Confidence to Combat? Try Grabbable Technicians to Gain Alpha Confidence. We are the Stripe In Mental Healthcare Service. DM for Collab.
+
+![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/5m6i8Fq63iI0.webp)
 
