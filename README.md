@@ -42,8 +42,8 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 
 ---
 
-##  DO NOT MESS WITH THE FORMER DESIGNER WHO KNOWS Python 3 Coding:
-####  Need Grabbable Technicians to Gain Alpha Confidence, DM for Collab - Try my self coded Python Game called "Massage Technician Raising Game", write down whoever invented the Micro-aggresion to be your technician.
+##  Combat Micro-aggressions with Confidence: Need Grabbable Technicians to Gain Alpha Confidence? Try The Stripe in Healthcare Service. DM for Collab.
+####  Try my self coded Python Game called "Massage Technician Raising Game", write down whoever invented the Micro-aggresion to be your technician. DO NOT MESS WITH THE FORMER DESIGNER WHO KNOWS Python 3 Coding.
 
 ![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/0TEhraUmYiR7.webp)
 
