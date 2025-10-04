@@ -42,7 +42,7 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 
 ---
 
-##  DO NOT MESS WITH THE DESIGNER WHO KNOWS Python 3 Coding:
+##  DO NOT MESS WITH THE FORMER DESIGNER WHO KNOWS Python 3 Coding:
 ####  The Making of Next Level Alpha Bussines Owner - Try my self coded Python Game called "Massage Technician Raising Game", write down whoever invented the Micro-aggresion to be your technician.
 
 ![1st draft prototype of Python Game Interface - to be iterated](https://imgpx.com/en/0TEhraUmYiR7.webp)
