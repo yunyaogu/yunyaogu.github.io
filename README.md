@@ -1,7 +1,8 @@
 # About
-## Business Owner And Life Long Learner
+## Business Owner And Life Long Learner ## DeployDataThanIdentitySell ##DesignUniversally ##EndDesignHierarchy
 ### #Am I the last one who cares about design’s value over securing a designer job??? #CredentialsMatter #BrainWorkMatters #ReadThanMan-pleasing #IChooseKnowledgePowerThanPxxxyPower 
-### ALWAYS PRUDENT, NO TIME FOR DESIGN MONETIZING
+### ALWAYS PRUDENT, NO TIME FOR MONOPOLIZED SEARCH ENGINE RESULT MANIPULATION
+### ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED
 ### #NoAffiliationWithDesignEducationalProgram #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 #### Yun, is a humble, hungry and foolish life long learner and business starter. Yun, known professionally as Yunyao Gu, serves as the Business Owner of Divine Design. Yun was a senior UX UI designer and design consultant with 4 years of full time working experiences, known for extensive collaborations with prominent clients spanning the technology, education, e-commerce, insurance, and finance sectors. At the helm of Divine Design, a leading design company specializing in socially responsible design and strategy, Yun prioritizes cutting-edge design iterations tailored to the distinctive needs of small and medium-sized businesses. Emphasizing a design philosophy centered on human values, locality, and iterative processes, Yun’s approach underscores a commitment to elevating user experience and business objectives above profit-driven motives in corporations. Drawing on a wealth of experience from previous roles within consulting firms and Fortune 500 companies, Yun brings a diverse skill set to her current endeavors. Proficient in rapid prototyping, full-stack UCD methodology, and effective stakeholder management, Yun ensures that projects are executed with efficiency and precision, consistently surpassing client expectations. Yun holds an MBA from Quantic School of Business with a scholarship, and has completed the one year long LEAD Online Business Program at Stanford Graduate School of Business.
 
