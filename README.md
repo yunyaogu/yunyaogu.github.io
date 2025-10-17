@@ -1,6 +1,7 @@
 # About
 ## Business Owner And Life Long Learner 
-## DeployDataThanIdentitySell; DesignUniversally; EndDesignHierarchy
+## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
+## ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
 ### #Am I the last one who cares about design’s value over securing a designer job??? #CredentialsMatter #BrainWorkMatters #ReadThanMan-pleasing #IChooseKnowledgePowerThanPxxxyPower 
 ### ALWAYS PRUDENT, NO TIME FOR MONOPOLIZED SEARCH ENGINE RESULT MANIPULATION
 ### ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED
