@@ -41,8 +41,22 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 
 ![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*qH1jbnLk-9NKJCqDMB4ZLA.png)
 
+![Profile Pic](https://instasize.com/p/b811ce7fb5dc5c5f23202b3d01798903513c5856bf9034785b61a1064eb6fa45)
 
 ---
+
+##  Use Coze to develop an AI chatbot agent for Digital Service Company. DM for Collab.
+####  My attempt to use Coze to develop a AI agent mockup.
+
+![1st draft prototype of Python Game Interface - to be iterated](https://instasize.com/p/cf74d3efdd21c38c1d7cfff6da83e835727892ae0f4ec751a91550f748b959d0)
+
+####  My attempt to use Coze to develop a AI agent mockup.
+
+![1st draft prototype of Python Game Interface - to be iterated](https://instasize.com/p/0058599268713160734dd29cba7caf284eb5daa4da572d0607598ebca5c8779d)
+
+####  My attempt to use Coze to develop a AI agent mockup.
+
+![1st draft prototype of Python Game Interface - to be iterated](https://instasize.com/p/73603792db5aed6a3d1acaefd0dba3799ba30fac33e3cde646c6076ea7f89f26)
 
 ##  Combat Micro-aggressions with Confidence: Need Grabbable Technicians to Gain Alpha Confidence? Try The Stripe in Healthcare Service. DM for Collab.
 ####  Try my self coded Python Game called "Massage Technician Raising Game", write down whoever invented the Micro-aggresion to be your technician. DO NOT MESS WITH THE FORMER DESIGNER WHO KNOWS Python 3 Coding.
