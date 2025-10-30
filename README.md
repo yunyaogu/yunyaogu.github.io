@@ -48,7 +48,7 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 ##  Use Coze to develop an AI chatbot agent for Digital Service Company. DM for Collab.
 ####  My attempt to use Coze to develop a AI agent mockup.
 
-![1st draft prototype of Python Game Interface - to be iterated](https://postimg.cc/75RhZHVC)
+![1st draft prototype of Python Game Interface - to be iterated](https://i.postimg.cc/3w8v9W0Z/4.jpg)
 
 ####  My attempt to use Coze to develop a AI agent mockup.
 
