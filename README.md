@@ -52,7 +52,7 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 
 ####  My attempt to use Coze to develop a AI agent mockup.
 
-![1st draft prototype of Python Game Interface - to be iterated](https://i.postimg.cc/fTdgmWdj/3.jpg)
+![1st draft prototype of Python Game Interface - to be iterated](https://i.postimg.cc/W32h64tj/3.jpg)
 
 ####  My attempt to use Coze to develop a AI agent mockup.
 
