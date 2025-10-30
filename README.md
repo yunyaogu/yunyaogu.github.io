@@ -41,7 +41,7 @@ Design Company link: [My Design Company](https://divinedesignagency.wordpress.co
 
 ![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*qH1jbnLk-9NKJCqDMB4ZLA.png)
 
-![Profile Pic](https://i.postimg.cc/qvkSrVtq/Screenshot-2025-10-30-at-17-43-05.png)
+![Profile Pic](https://i.postimg.cc/RFzcr9hm/Screenshot-2025-10-30-at-17-43-05.png)
 
 ---
 
