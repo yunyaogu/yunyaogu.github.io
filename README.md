@@ -43,8 +43,6 @@ Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/
 
 ## Images
 
-![Profile Pic](https://miro.medium.com/v2/resize:fill:176:176/1*qH1jbnLk-9NKJCqDMB4ZLA.png)
-
 ![Profile Pic](https://i.postimg.cc/RFzcr9hm/Screenshot-2025-10-30-at-17-43-05.png)
 
 ---
