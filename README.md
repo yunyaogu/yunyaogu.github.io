@@ -45,6 +45,8 @@ Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/
 
 ![Profile Pic](https://i.postimg.cc/RFzcr9hm/Screenshot-2025-10-30-at-17-43-05.png)
 
+![Profile Pic](https://i.postimg.cc/sfZ0bTQZ/Screenshot-2026-01-29-at-12-11-07.png)
+
 ---
 
 ##  Use Coze to develop an AI chatbot agent for Digital Service Company. DM for Collab.
