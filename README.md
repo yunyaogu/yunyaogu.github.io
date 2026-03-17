@@ -1,5 +1,6 @@
 # About
-## Business Owner And Life Long Learner 
+## Business Owner And Life Long Learner
+## Yun has walked away from design owning her failuire in her last full time job and am recovering from RISD retaliation. 
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
 ## ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
 ### #Am I the last one who cares about design’s value over securing a designer job??? #CredentialsMatter #BrainWorkMatters #ReadThanMan-pleasing #IChooseKnowledgePowerThanPxxxyPower 
