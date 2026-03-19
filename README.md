@@ -1,8 +1,8 @@
 # About
 ## Business Owner, Legal Practitioner
 ## Peasant Laborer 
-## Failed y Retaliated
-# Never Gynecology y Dermatology - UNDOWNLOADABLE - Speak Shit Non-Stop and Shit A Lot Everyday - FULL OF SHIT
+## Failed, Retaliated
+# Never Accessed Gynecology and Dermatology - UNDOWNLOADABLE - Speak Shit Non-Stop and Shit A Lot Everyday - FULL OF SHIT
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
