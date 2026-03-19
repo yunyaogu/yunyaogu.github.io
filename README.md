@@ -2,7 +2,7 @@
 ## Business Owner And Life Long Learner
 ## Owning Failuire
 ## Confessing to Guadalupe y Jesus Everyday For Cursing DEI
-## Still Cumming, To Approach The Laude, To be Downloadable with Gynecology and Dermatology Successes
+## Still Cumming, To Approach The Laude - To be Downloadable with Gynecology and Dermatology Successes
 
 ## Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
