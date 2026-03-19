@@ -1,8 +1,12 @@
 # About
 ## Business Owner, Legal Practitioner
 ## Peasant
-## Never Pilates 
-## FAT without Peabody
+## Failed, Never G.G
+## Never Pilates at 5am - Can't bank
+## Prudent Laborer With Big Head and Optics
+## Retaliated - Needs to Eat Two Bowls of Rice For Big Head To Function 
+## Shxt a lot - A LOT - Never Gynecology - DIRTY - Can't Afford Pea - FAT - JustNobody
+#### SHXT A LOTTTTTT IS THE POINT
 
 ## Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
@@ -21,10 +25,6 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 ## Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo.
-
-## Why Keep Speaking Up - Design may represent 1–5% of the business, but somehow it absorbs the emotional labor of 95% of the dysfunction. Designers often end up dealing with the bulk of the chaos, stress, and organizational issues, even though they’re a small part of the company: Processes stretch out like an endlessly unspooling thread. Decisions evaporate in meetings. Priorities shift with the breeze of leadership’s latest epiphany. Sit at the intersection of conflicting teams, Deal with last-minute changes and shifting opinions, Translate vague ideas into actual solutions, Navigate politics disguised as “feedback,” Manage stakeholders who don’t understand design but want control over it, Smooth over communication breakdowns between product, engineering, marketing, and leadership, Face pressure to make something “look good” even when the underlying strategy is broken. In other words: Designers carry the dysfunctionally miserable product that has ambiguity, mess, boiled sea, contradictions, and political nonsense that other teams create. If you don’t keep speaking up, pushing, challenging — nothing moves. Not because people don’t recognize problems, but because acknowledging them requires effort. 
-
-## The Combat: So when someone says, “You’re complaining,” remind them: No. You’re trying to fix a system everyone else has decided to simply survive. It takes ten times more energy to push something toward rightness than to passively watch it slide into mediocrity. You’re not complaining. You’re fighting entropy while everyone else applauds the chaos.
 
 ___
 
