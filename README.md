@@ -1,6 +1,6 @@
 # About
 ## Business Owner And Life Long Learner
-## Forgiven by Guadalupe
+## Forgiven by Guadalupe Goddess
 ## Yun has walked away from design owning her failuire in her last full time job and is recovering from RISD retaliation, still will initiate legal actions against RISD at any time for long term reputation sabotages and unlawful search engine linkage association in the near future. 
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
 ## ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
