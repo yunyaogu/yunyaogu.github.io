@@ -1,9 +1,7 @@
 # About
 ## Business Owner, Legal Practitioner
 ## Peasant Laborer 
-## Never Pilates
 ## Failed y Retaliated
-# Big Head, Fat Body y Optics, Never Pilates
 # Never Gynecology y Dermatology - UNDOWNLOADABLE - Speak Shit Non-Stop and Shit A Lot Everyday - FULL OF SHIT
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
