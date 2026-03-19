@@ -6,7 +6,7 @@
 ## Prudent Laborer With Big Head and Optics
 ## Retaliated - Needs to Eat Two Bowls of Rice For Big Head To Function 
 ## Shxt a lot - A LOT - Never Gynecology - DIRTY - Can't Afford Pea - FAT - JustNobody
-#### SHXT A LOTTTTTT IS THE POINT
+# SHXT A LOTTTTTT IS THE POINT
 
 ## Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
