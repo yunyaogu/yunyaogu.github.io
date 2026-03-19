@@ -1,8 +1,7 @@
 # About
 ## Business Owner, Legal Practitioner
 ## Peasant
-## Failed, Never G.G
-## Never Pilates at 5am - Can't bank
+## Failed
 ## Prudent Laborer With Big Head and Optics
 ## Retaliated - Needs to Eat Two Bowls of Rice For Big Head To Function 
 # Never Gynecology y Dermatology - UNDOWNLOADABLE - Can't Afford Pea - FAT - Speak Shit and Shit A Lot Everyday - FULL OF SHIT
@@ -14,8 +13,6 @@
 
 #### Yun, is a humble, hungry and foolish life long learner and business starter. Yun, known professionally as Yunyao Gu, serves as the Business Owner of Divine Design
 #### Yun was a senior UX UI designer and design consultant with 4 years of full time working experiences, known for extensive collaborations with prominent clients spanning the technology, education, e-commerce, insurance, and finance sectors. At the helm of Divine Design, a leading design company specializing in socially responsible design and strategy, Yun prioritizes cutting-edge design iterations tailored to the distinctive needs of small and medium-sized businesses. Emphasizing a design philosophy centered on human values, locality, and iterative processes, Yun’s approach underscores a commitment to elevating user experience and business objectives above profit-driven motives in corporations. Drawing on a wealth of experience from previous roles within consulting firms and Fortune 500 companies, Yun brings a multi-disciplinary skill set to her current endeavors. Proficient in rapid prototyping, full-stack UCD methodology, and effective stakeholder management, Yun ensures that projects are executed with efficiency and precision, consistently surpassing client expectations. 
-
-###### Yun’s innovative design approach is exemplified by her patents for problem-solving solutions such as the Wireless Car Finding System and the Bib with Drawstring. Noteworthy accolades, including the iF STUDENT DESIGN AWARD and Red Dot Design Concept Award, underscore Yun’s commitment to excellence in design.
 
 ---
 
