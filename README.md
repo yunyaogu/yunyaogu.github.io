@@ -1,7 +1,7 @@
 # About
 ## Business Owner, Legal Practitioner
 # Peasant Laborer Never Pilates
-## Failed 
+## Failed, No G.G
 ## Retaliated - Needs to Eat Two Bowls of Rice For Big Head To Function 
 # Never Gynecology y Dermatology - UNDOWNLOADABLE - Speak Shit Non-Stop and Shit A Lot Everyday - FULL OF SHIT
 
