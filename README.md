@@ -1,8 +1,8 @@
 # About
 ## Business Owner, Legal Practitioner
-## Peasant Retaliated By RISD
+## Peasant
 ## Never Pilates 
-## So No Peabody
+## FAT without Peabody
 
 ## Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
