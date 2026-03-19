@@ -34,7 +34,7 @@ ___
 
 Medium Blog link: [medium](https://medium.com/@yunyaogu)
 LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
-RedNote English Teaching Blog link: [RedNote](https://www.xiaohongshu.com/user/profile/5b9ae55bacffcf0001de5ef7?xsec_token=YBRFjDVA_U4iGFLex22eV5KH6KbTgUg7BXSGGubhDMBCo=&xsec_source=app_share&xhsshare=CopyLink&shareRedId=N0g7QUg6OUtHSktITE4wNjY0TUw5SkxA&apptime=1769567046&share_id=61a84f5038fb482bb3d5ce4fab42d604)
+RedNote English Teaching Blog link: [RedNote English Teaching Blog](https://www.xiaohongshu.com/user/profile/5b9ae55bacffcf0001de5ef7?xsec_token=YBRFjDVA_U4iGFLex22eV5KH6KbTgUg7BXSGGubhDMBCo=&xsec_source=app_share&xhsshare=CopyLink&shareRedId=N0g7QUg6OUtHSktITE4wNjY0TUw5SkxA&apptime=1769567046&share_id=61a84f5038fb482bb3d5ce4fab42d604)
 Design Company link: [My Design Company](https://divinedesignagency.wordpress.com/)
 Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/Travel Log called Capitalism's Opposite Word Is Mexico](https://github.com/yunyaogu/PayItForward)
 
