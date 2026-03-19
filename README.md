@@ -19,11 +19,7 @@
 
 ## Links
 
-Medium Blog link: [medium](https://medium.com/@yunyaogu)
-
 LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
-
-Design Company link: [My Design Company](https://divinedesignagency.wordpress.com/)
 
 Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/Travel Log called Capitalism's Opposite Word Is Mexico](https://github.com/yunyaogu/PayItForward)
 
