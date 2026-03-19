@@ -4,7 +4,7 @@
 ## Failed
 ## Prudent Laborer With Big Head and Optics
 ## Retaliated - Needs to Eat Two Bowls of Rice For Big Head To Function 
-# Never Gynecology y Dermatology - UNDOWNLOADABLE - Can't Afford Pea - FAT - Speak Shit and Shit A Lot Everyday - FULL OF SHIT
+# Never Gynecology y Dermatology - UNDOWNLOADABLE - Speak Shit and Shit A Lot Everyday - FULL OF SHIT
 
 ## Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
