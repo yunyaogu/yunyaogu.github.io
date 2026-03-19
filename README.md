@@ -7,7 +7,7 @@
 
 ## Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
-## ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
+# ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 
 #### Yun, is a humble, hungry and foolish life long learner and business starter. Yun, known professionally as Yunyao Gu, serves as the Business Owner of Divine Design
