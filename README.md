@@ -1,7 +1,7 @@
 # About
 ## Business Owner And Life Long Learner
 ## Forgiven by Guadalupe Goddess
-## Yun has walked away from design owning her failuire in her last full time job and is recovering from RISD retaliation, still will initiate legal actions against RISD at any time for long term reputation sabotages and unlawful search engine linkage association in the near future. 
+## Yun has walked away from design owning her failuire in her last full time job and is recovering from RISD retaliation, still will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations. 
 ## DeployDataThanIdentitySell; DesignUniversally; BoycottShallowProductManagement; MakeWrongDesignHarder
 ## ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
 ### #Am I the last one who cares about design’s value over securing a designer job??? #CredentialsMatter #BrainWorkMatters #ReadThanMan-pleasing #IChooseKnowledgePowerThanPxxxyPower 
@@ -34,9 +34,13 @@ ___
 ## Links
 
 Medium Blog link: [medium](https://medium.com/@yunyaogu)
+
 LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
+
 RedNote English Teaching Blog link: [RedNote English Teaching Blog](https://www.xiaohongshu.com/user/profile/5b9ae55bacffcf0001de5ef7?xsec_token=YBRFjDVA_U4iGFLex22eV5KH6KbTgUg7BXSGGubhDMBCo=&xsec_source=app_share&xhsshare=CopyLink&shareRedId=N0g7QUg6OUtHSktITE4wNjY0TUw5SkxA&apptime=1769567046&share_id=61a84f5038fb482bb3d5ce4fab42d604)
+
 Design Company link: [My Design Company](https://divinedesignagency.wordpress.com/)
+
 Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/Travel Log called Capitalism's Opposite Word Is Mexico](https://github.com/yunyaogu/PayItForward)
 
 
