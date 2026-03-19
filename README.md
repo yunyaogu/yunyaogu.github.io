@@ -34,7 +34,7 @@ ___
 
 Medium Blog link: [medium](https://medium.com/@yunyaogu)
 LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
-Vimeo link: [vimeo](https://vimeo.com/user239071263)
+English Teaching Blog link: [English Teaching Blog](http://xhslink.com/m/71y6WT6o8Y1）
 Design Company link: [My Design Company](https://divinedesignagency.wordpress.com/)
 Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/Travel Log called Capitalism's Opposite Word Is Mexico](https://github.com/yunyaogu/PayItForward)
 
