@@ -1,7 +1,5 @@
 # About
 ## Business Owner, Legal Practitioner
-# Peasant Laborer 
-# UNDOWNLOADABLE - Speak Shit Non-Stop and Shit A Lot Everyday - FULL OF SHIT, BIG HEAD, OPTICS, NEVER PILATES, FAT, FAILED
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally
