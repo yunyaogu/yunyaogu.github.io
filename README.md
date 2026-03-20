@@ -3,7 +3,7 @@
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally
-# ALL RESULTS ON SEARCH ENGINE AFTER PAGE 1 IS UNAUTHORIZED & MANIPULATED
+# ALL RESULTS ON SEARCH ENGINES AFTER TOP 4 LINKS ON PAGE 1 ARE UNAUTHORIZED & MANIPULATED
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 
 ---
