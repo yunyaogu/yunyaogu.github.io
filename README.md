@@ -16,9 +16,9 @@
 
 ---
 
-## IMAGES
+## IMAGE
 
-![Pina Body Downloadable](https://i.postimg.cc/RZNb3t8d/IMG-6143.jpg)
+![Downloadable](https://i.postimg.cc/qq6zhjsG/Screenshot-2026-03-22-at-19-52-07.png)
 
 ---
 
