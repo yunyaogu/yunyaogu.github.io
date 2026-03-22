@@ -4,7 +4,7 @@
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally
 # ALL RESULTS ON SEARCH ENGINES AFTER TOP 4 LINKS ON PAGE 1 ARE UNAUTHORIZED & MANIPULATED
-# BE CIVIL - CHOOSE YAHOO TO SEARCH - AVOID GOOGLE LIKE AVOIDING NEO-NAZI DESIGN ENTITY
+# BE CIVIL - CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 
 ---
@@ -16,17 +16,17 @@
 
 ---
 
+## IMAGES
+
+![Pina Body Downloadable](https://i.postimg.cc/RZNb3t8d/IMG-6143.jpg)
+
+---
+
 ## Links
 
 LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
 
 Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/Travel Log called Capitalism's Opposite Word Is Mexico](https://github.com/yunyaogu/PayItForward)
-
----
-
-## IMAGES
-
-![Pina Body Downloadable](https://i.postimg.cc/RZNb3t8d/IMG-6143.jpg)
 
 ---
 
