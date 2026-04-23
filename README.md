@@ -3,7 +3,7 @@
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally
-# BE CIVIL - CHOOSE YAHOO TO SEARCH - ONLY TOP 3 LINKS ON ANY SEARCH ENGINE PAGE 1 ARE AUTHORIZED
+# BE CIVIL - CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 
 ---
