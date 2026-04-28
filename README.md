@@ -23,7 +23,7 @@
 
 ---
 
-## Lawyer Techniques to Hang with RISD & RISD ID faculties - nothing but fun grad ID design course recordings to convert to text.
+## Lawyer Techniques to Hang with RISD & RISD ID faculties - nothing but fun recordings to convert to text.
 
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
