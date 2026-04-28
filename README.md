@@ -23,6 +23,12 @@
 
 ---
 
+## Lawyer Techniques to Hang with RISD
+
+![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
+
+---
+
 ## Links
 
 LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
