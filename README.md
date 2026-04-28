@@ -23,7 +23,7 @@
 
 ---
 
-## Lawyer Techniques to Hang with RISD
+## Lawyer Techniques to Hang with RISD - Relax, RISD ID faculties
 
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
