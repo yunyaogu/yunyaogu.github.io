@@ -12,7 +12,8 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
-
+# Back off RISD & design CUNTS
+# Save your grace for your gynecology treatment & corporate DEI strategy budget
 ---
 
 ## IMAGE
