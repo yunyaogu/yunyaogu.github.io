@@ -12,10 +12,9 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
-# Back off RISD & design CUNTS
-# Confess your overthinking 
-# As I confess to Guadalupe for judgement - we're all unfortunate without her mercy.
-# Don't ching chung and fuss with your puss - just save your grace for your gynecology treatment & corporate DEI strategy budget
+# Back off RISD & CUNTS 
+# We're all unfortunate without Guadalupe's mercy.
+# Don't ching chung and fuss with your puss - just save it for your gynecology treatment bill & corporate DEI strategy budget
 ---
 
 ## IMAGE
