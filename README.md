@@ -12,7 +12,6 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
-# Back off RISD & CUNTS
 # MIND your mole or wart and shave your hairy ass 
 # We're all unfortunate without Guadalupe's mercy.
 # Do more ching chung copywriting and fuss with your puss - for your gynecology treatment bill & corporate DEI strategy budget
