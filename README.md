@@ -13,7 +13,7 @@
 
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
 # Back off RISD & CUNTS
-# Don't stalk just MIND your mole or wart and shave your hairy ass 
+# MIND your mole or wart and shave your hairy ass 
 # We're all unfortunate without Guadalupe's mercy.
 # Don't ching chung and fuss with your puss - just save it for your gynecology treatment bill & corporate DEI strategy budget
 ---
