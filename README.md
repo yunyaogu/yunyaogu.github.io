@@ -17,7 +17,10 @@
 # We're all unfortunate without Guadalupe's mercy.
 # Don't ching chung and fuss with your puss - just save it for your gynecology treatment bill & corporate DEI strategy budget
 ---
+# Chant for RISD & Cunts
+# RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Of course.Human liquidity. better than carbohydrate-shitless. Probably full of cum.
 
+---
 ## IMAGE
 
 ![Downloadable](https://i.postimg.cc/qq6zhjsG/Screenshot-2026-03-22-at-19-52-07.png)
