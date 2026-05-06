@@ -18,12 +18,8 @@
 # Don't ching chung and fuss with your puss - just save it for your gynecology treatment bill & corporate DEI strategy budget
 ---
 # Chant for RISD - The "Cummer" & Cunts
-# RISD, My phone screen, Full of your cum. 
-# Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. 
-# Of course. Send more scam HR, all like your liquidity "cummer" identity.
-# NGO coated Neo-Nazi Design school.
-# Immersed with Robbed Capital. 
-# Probably full of cum, unzipped bra, minored ideology.
+# RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Of course. Just like your patachute faculty and scam HR, all liquidity "cummer" identity. NGO coated Neo-Nazi Design school.Immersed with Robbed Capital. 
+# A WHOREsome design program. Full of cum, unzipped bra, minored ideology.
 
 ---
 ## IMAGE
