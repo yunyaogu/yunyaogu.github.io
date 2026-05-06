@@ -18,7 +18,7 @@
 # Don't ching chung and fuss with your puss - just save it for your gynecology treatment bill & corporate DEI strategy budget
 ---
 # Chant for RISD & Cunts
-# RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Of course. Human liquidity. Better than carbohydrate. Immersed with Robbed Capital. Probably full of cum，unzipped bra, minored ideology.
+# RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Of course. Human liquidity. Better than carbohydrate. Immersed with Robbed Capital. Probably full of cum, unzipped bra, minored ideology.
 
 ---
 ## IMAGE
