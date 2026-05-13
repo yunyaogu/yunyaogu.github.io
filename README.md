@@ -21,7 +21,7 @@
 # Chant for RISD - The "Cummer" & Cunts
 # RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Just like your parachute faculty and scam HR, all liquidity "cummer" identity. NGO coated, Neo-Nazi Design school. Immersed with Robbed Capital. A WHOREsome design program. Full of cum, unzipped bra, minored ideology.
 # Chant: The Nepo Meaty Metal Man Pattern 
-# Who doesn’t like shifting some tension? Attention all goes to The Man who favors metal. The more interesting being than me. Guns & flowers；Death & metal；Overly confident；Selectively self aware；Need CXXD language center tutoring service to be more concise；Nepo baby；Meaty meaty；Bachelor level vocabulary. Meat meat meat，Yummy yummy yummy 🤤 Better than London clock tick tick.
+# Who doesn’t like shifting some tension? Attention all goes to The Man who favors metal. The more interesting being than me. Guns & flowers；Death & metal；Overly confident；Pure compliment and sweet；Nepo baby；Meaty meaty；Bachelor level vocabulary. Yummy yummy. 🤤 
 
 ---
 ## IMAGE
