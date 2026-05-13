@@ -1,12 +1,12 @@
 # About
 ## Business Owner, Legal Practitioner
-## 震旦保险别找我找王桂云 
-## 真农民工就是吃狗肉补身
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally
 # BE CIVIL - CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
+## 震旦保险别找我找王桂云 
+## 真农民工就是吃狗肉补身
 
 ---
 
