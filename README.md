@@ -29,6 +29,8 @@
 
 ![Downloadable](https://i.postimg.cc/QCt4vZMc/IMG-9951.jpg)
 
+![Downloadable](https://i.postimg.cc/xdnPWVxC/IMG-0372.jpg)
+
 ---
 
 ## Lawyer Techniques to Hang with RISD & RISD ID faculties - nothing but fun recordings to convert to text.
