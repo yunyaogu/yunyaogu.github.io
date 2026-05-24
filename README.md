@@ -29,7 +29,7 @@
 
 ![Downloadable](https://i.postimg.cc/xdnPWVxC/IMG-0372.jpg)
 
-![Downloadable](https://i.postimg.cc/TwmYNtDS/IMG-0376.png)
+![Downloadable](https://i.postimg.cc/sgqzFpsr/IMG-0424.jpg)
 
 ---
 
