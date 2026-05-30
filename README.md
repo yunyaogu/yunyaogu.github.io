@@ -13,8 +13,8 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
-# MIND your mole or wart and shave your hairy ass 
-# We're all unfortunate without Guadalupe's mercy.
+# MEET my alter ego Yuvani who ascends from moles and hustles on XHS.
+# UNSHAKABLE communication confidence starts from practices.
 # Do more ching chung copywriting and fuss with your puss - for your gynecology treatment bill & corporate DEI strategy budget
 ---
 # Chant for RISD - The "Cummer" & Cunts
@@ -26,10 +26,6 @@
 ![Downloadable](https://i.postimg.cc/qq6zhjsG/Screenshot-2026-03-22-at-19-52-07.png)
 
 ![Downloadable](https://i.postimg.cc/Zn9PjPSB/Profile-Pic-0322.png)
-
-![Downloadable](https://i.postimg.cc/xdnPWVxC/IMG-0372.jpg)
-
-![Downloadable](https://i.postimg.cc/sgqzFpsr/IMG-0424.jpg)
 
 ![Downloadable](https://i.postimg.cc/RFYXt1pR/IMG-0660.jpg)
 
