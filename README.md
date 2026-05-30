@@ -21,7 +21,7 @@
 # RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Just like your parachute faculty and scam HR, all liquidity "cummer" identity. NGO coated, Neo-Nazi Design school. Immersed with Robbed Capital. A WHOREsome design program. Full of cum, unzipped bra, minored ideology.
 
 ---
-## IMAGE
+## IMAGE ( do check my English teaching blog to know me)
 
 ![Downloadable](https://i.postimg.cc/qq6zhjsG/Screenshot-2026-03-22-at-19-52-07.png)
 
@@ -30,6 +30,10 @@
 ![Downloadable](https://i.postimg.cc/xdnPWVxC/IMG-0372.jpg)
 
 ![Downloadable](https://i.postimg.cc/sgqzFpsr/IMG-0424.jpg)
+
+![Downloadable](https://i.postimg.cc/RFYXt1pR/IMG-0660.jpg)
+
+![Downloadable](https://i.postimg.cc/NG4RZkkm/IMG-0649.jpg)
 
 ---
 
