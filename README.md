@@ -13,8 +13,9 @@
 #HaveSomeSelfAwarenesses #YourInsecuritesLookLikeAJoke
 
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
-# MEET my alter ego Yuvani who ascends from moles and hustles on XHS.
-# UNSHAKABLE communication confidence starts from practices.
+# MEET my alter ego Yuvani who ascends from moles and hustles on XHS 
+# VISIT my English teaching blog profile!>> https://xhslink.com/m/4aYVKvixQQq
+# UNSHAKABLE resilience and mindfulness starts from practices.
 # Do more ching chung copywriting and fuss with your puss - for your gynecology treatment bill & corporate DEI strategy budget
 ---
 # Chant for RISD - The "Cummer" & Cunts
