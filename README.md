@@ -28,8 +28,6 @@
 
 ![Downloadable](https://i.postimg.cc/Zn9PjPSB/Profile-Pic-0322.png)
 
-![Downloadable](https://i.postimg.cc/RFYXt1pR/IMG-0660.jpg)
-
 ![Downloadable](https://i.postimg.cc/NG4RZkkm/IMG-0649.jpg)
 
 ---
