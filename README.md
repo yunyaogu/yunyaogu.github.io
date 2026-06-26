@@ -8,6 +8,7 @@
 # CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 ## 震旦保险别找我找王桂云 
+## Jared Don't Fell
 
 ---
 
@@ -22,6 +23,10 @@
 ---
 # Chant for RISD - The "Cummer" & Cunts
 # RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Just like your parachute faculty and scam HR, all liquidity "cummer" identity. NGO coated, Neo-Nazi Design school. Immersed with Robbed Capital. A WHOREsome design program. Full of cum, unzipped bra, minored ideology.
+
+# Chant - "Jared Don't Fell" 
+# RISD ID Narc faculties, How sick you are? Is adding fell in my fast name that satisfying to you? My owning act in my past post is not enough? Ask your Jared if he is a NASA contractor or gov official? 
+# Wanna set up new shit again? Send real gov ops.  Not contractors. To China mainland. I’m here blending kimchi with my feet to welcome.
 
 ---
 ## IMAGE ( do check my English teaching blog to know me)
