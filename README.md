@@ -8,7 +8,8 @@
 # CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 ## 震旦保险别找我找王桂云 
-## Jared Don't Fell
+## Save Jared and Jeremy for Fall not Fell
+## RISD Fall semester with Design Engineering Elective is Nu Cash Cow
 
 ---
 
