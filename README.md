@@ -4,7 +4,7 @@
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ## DeployDataThanIdentitySell; DesignUniversally
 ## When you fuss with me. What am I gonna do? 
-## Like a parachute 🪂 or zipped department head 💳 Pat the fuss or pxxs. Make it nice. UnZip my bra. Pierce with ring. Cum to the launde.
+## Like a parachute 🪂 or zipped department head 💳 Pat the fuss or pxxs. Make it nice. UnZip my bra. Pierce with ring. Cum to the laude.
 # CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 ## 震旦保险别找我找王桂云 
