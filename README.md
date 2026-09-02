@@ -1,11 +1,10 @@
 # About
 ## Business Owner, Legal Practitioner, Linguistics and Language Teacher, Enthusiast 
-
+## Firm Believer of Hindu culture heritage, Brazilian Portuguese Learner, Proactive Judaism Converter
+## Selfless Identity Believer
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
-## Firm Believer of Hindu culture heritage
-## Brazilian Portuguese Learner
-## Proactive Judaism Converter
+
 
 ## 震旦保险别找我找王桂云 
 
