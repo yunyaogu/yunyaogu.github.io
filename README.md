@@ -1,11 +1,11 @@
 # About
-## Business Owner, Legal Practitioner, Linguistics and Language Teacher and Enthusiast 
+## Business Owner, Legal Practitioner, Linguistics and Language Teacher, Enthusiast 
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 ## Firm Believer of Hindu culture heritage
 ## Brazilian Portuguese Learner
-## Future Judaism Converter
+## Proactive Judaism Converter
 
 ## 震旦保险别找我找王桂云 
 
@@ -16,6 +16,13 @@
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
 # MEET my alter ego Yuvani who ascends from moles and hustles on XHS 
 # VISIT my English teaching blog profile!>> https://xhslink.com/m/4aYVKvixQQq
+
+
+# ReddeningNeckThanJudging
+# NJ
+# NJvibe
+# I support all work types of women.
+
 
 # Now practicing telling more low class jokes to network, or simply being #Alpha like pulling out thick neck.
 # DM if you’re into pygame creation. 
