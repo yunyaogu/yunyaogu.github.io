@@ -2,10 +2,6 @@
 ## Business Owner, Legal Practitioner
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
-## DeployDataThanIdentitySell; DesignUniversally
-## When you fuss with me. What am I gonna do? 
-## Like a parachute 🪂 or zipped department head 💳 Pat the fuss or pxxs. Make it nice. UnZip my bra. Pierce with ring. Cum to the laude.
-# CHOOSE YAHOO TO SEARCH
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 ## 震旦保险别找我找王桂云 
 ## Save Jared and Jeremy for Fall not Fell
@@ -19,11 +15,7 @@
 # Continuous improvement is hard, while performative innovation photographs beautifully. And corporations love a good photo. Noted.
 # MEET my alter ego Yuvani who ascends from moles and hustles on XHS 
 # VISIT my English teaching blog profile!>> https://xhslink.com/m/4aYVKvixQQq
-# UNSHAKABLE resilience and mindfulness starts from practices.
-# Do more ching chung copywriting and fuss with your puss - for your gynecology treatment bill & corporate DEI strategy budget
----
-# Chant for RISD - The "Cummer" & Cunts
-# RISD, My phone screen, Full of your cum. Laude cummer faculty, parachute anchor faculty, Yellow fetish liquid, Man eater with hybrid identity. Just like your parachute faculty and scam HR, all liquidity "cummer" identity. NGO coated, Neo-Nazi Design school. Immersed with Robbed Capital. A WHOREsome design program. Full of cum, unzipped bra, minored ideology.
+
 
 # Chant - "Jared Don't Fell" 
 # RISD ID Narc faculties, How sick you are? Is adding fell in my fast name that satisfying to you? My owning act in my past post is not enough? Ask your Jared if he is a NASA contractor or gov official? 
@@ -39,6 +31,9 @@
 ![Downloadable](https://i.postimg.cc/NG4RZkkm/IMG-0649.jpg)
 
 ![Downloadable](https://i.postimg.cc/xdvwK1W3/IMG-0661.jpg)
+
+![Downloadable](https://i.postimg.cc/t4MmGLnd/IMG-5666.jpg)
+
 
 ---
 
