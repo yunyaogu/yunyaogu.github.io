@@ -24,7 +24,7 @@
 # Less Judging More Support.
 
 
-# Now practicing telling more low class jokes to network, or simply being #Alpha like pulling out thick neck.
+# Now practicing telling more low class jokes to network, or simply keeping up with #AlphaTrend like pulling out thick neck.
 # DM if you’re into pygame creation. 
 # DM if you’re launching Only Clown.
 
