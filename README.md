@@ -17,6 +17,9 @@
 # MEET my alter ego Yuvani who ascends from moles and hustles on XHS 
 # VISIT my English teaching blog profile!>> https://xhslink.com/m/4aYVKvixQQq
 
+# Now practicing telling more low class jokes to network, or simply being #Alpha like pulling out thick neck.
+# DM if you’re into pygame creation. 
+# DM if you’re launching Only Clown.
 
 ---
 ## IMAGE ( do check my English teaching blog to know me)
