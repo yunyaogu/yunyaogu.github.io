@@ -21,7 +21,7 @@
 # ReddeningNeckThanJudging
 # NJ
 # NJvibe
-# I support all work types of women.
+# Less Judging More Support.
 
 
 # Now practicing telling more low class jokes to network, or simply being #Alpha like pulling out thick neck.
