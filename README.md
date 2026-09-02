@@ -3,6 +3,7 @@
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
+## Following Guadalupe, Jesus, and Gods of ALL.
 ## 震旦保险别找我找王桂云 
 ## Save Jared and Jeremy for Fall not Fell
 ## RISD Fall semester with Nazi Design Engineering Elective is Money Laundering Cash Cow
@@ -23,10 +24,7 @@
 
 ---
 ## IMAGE ( do check my English teaching blog to know me)
-
-![Downloadable](https://i.postimg.cc/qq6zhjsG/Screenshot-2026-03-22-at-19-52-07.png)
-
-![Downloadable](https://i.postimg.cc/Zn9PjPSB/Profile-Pic-0322.png)
+![Downloadable](https://i.postimg.cc/SNqKcPst/IMG-5672.png)
 
 ![Downloadable](https://i.postimg.cc/NG4RZkkm/IMG-0649.jpg)
 
