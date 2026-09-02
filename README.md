@@ -1,5 +1,5 @@
 # About
-## Business Owner, Legal Practitioner, Linguistics and Language Teacher and Ethusiast 
+## Business Owner, Legal Practitioner, Linguistics and Language Teacher and Enthusiast 
 
 # Will initiate legal actions against RISD at any time for long term professional reputation sabotages and unlawful search engine linkage associations
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
