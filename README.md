@@ -19,7 +19,7 @@
 
 
 # ReddeningNeckThanJudging
-# Less Judging More Support.
+# Less Judging to support all types of work.
 
 
 # Now practicing telling more low class jokes to network, or simply keeping up with #AlphaTrend like pulling out thick neck.
