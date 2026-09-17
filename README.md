@@ -51,7 +51,7 @@
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
 ---
-## When ignorance and barbarity is coated as power, you earn for what you gain. #proactiveadvocacy
+## When ignorance and barbarity are coated as power, you earn for what you gain. #proactiveadvocacy
 
 
 ## Low class humor:
