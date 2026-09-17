@@ -51,6 +51,8 @@
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
 ---
+## When ignorance and barbarity is coated as power, you earn for what you gain. #proactiveadvocacy
+
 
 ## Low class humor:
 Rome was not built in one day, as you can't make me into a #cunt in a week when you acquire the local infrastructure supply.
