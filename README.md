@@ -56,27 +56,6 @@
 
 ## Low class humor:
 Rome was not built in one day, as you can't make me into a #cunt in a week when you acquire the local infrastructure supply.
-It's hiring season, and many recruiters relentlessly ask why I chose to pivot away from design. 
-My design resume looks solid and experienced.
-When a discipline is highly #subjective and visual, the power structure could be based more on norms, #networks than logics, techniques.
-Moreover, when it comes to norms like topics of gender, which I typically views as nonsense 
-but it gains favor for the #big #powerful #boys, the power gaps in a #maledominant #sexist industry makes laborer women to take 5 to 10 times hard work to win the completion 
-and have the value to be heard. I'm forced to explain myself and constantly prove my worth at all cost without any morality or boundaries.
-This applies whether I'm dealing with retaliatory moves by certain monopolized infrastructure entities — such as sabotaging my water supply or introducing contaminants into 
-tap-water systems or even releasing #airborne viruses — or having #sexualized content repeatedly tied to my full name in search-engine results.
-It's interesting to experience infrastructural blockage and witness foreign capital's hustle buyout of Chinese infrastructure companies. Like the company my grandpa 
-worked for 30 years eventually had a wild merge and acquisition by a group and finally #de-registered, it's never something new to me, when it comes to #western merge and acquisition.
-Competing against barbaric psychopaths only #poisons your own mindset - make you a being or object full of #hate, #jealousy and #greed.
-Rhode Island School of Design 
-let your design faculty and board member know I'm here to document everything from time to time as the sexualized content updates weekly.
-Rhode Island School of Design 
-Whenever your faculty #damage my professionalism relentlessly, I'm here to #sprint, #groom and #sync it with #synergy.
-Rhode Island School of Design 
-BETTER FUCK YOURSELF MORE WITH THAT HULALUPIN STUDENT CREEPY PROMOTING EFFORTS. Your PhD associations, scientific index are just a reflection of how shallow you can offer as a monetizing education entity.
-Rhode Island School of Design 
-What royal vila did you purchase for your design amateur mistress? What luxurious apartment or sexy underwear did you buy for your junior designer or mistress, send me your interior design option of that #mistress-hoarding-design-plan, i'm here to fabricate it and make it an automatic #construction #robot and #sell it back to your whatever #capital group.
-Do deposit (RISD MID program tuition adding housing and living expense) and transfer compensation to my bank account. Otherwise this documentation won't stop.
-
 
 ---
 
