@@ -49,7 +49,7 @@
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
 ---
-## You don’t get yourself full of hate to deal with babaric design authority called CuxtD - its deformational acts - started in 18th century probably for an abundant history of robbing.
+## You don’t get yourself full of hate to deal with babaric design authority called CuxtD - its defamational acts - started in 18th century probably for an abundant history of robbing.
 
 ## PracticingTheArtOfNotResponding
 ## HatersAreLikeNeverExpiringFeetBlendedKimchi - AlwaysRefreshingly MicrobeReproductive - catering well.
