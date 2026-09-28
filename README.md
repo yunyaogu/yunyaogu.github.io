@@ -51,7 +51,10 @@
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
 ---
-## When ignorance and barbarity are coated as power, you earn for what you gain. #proactiveadvocacy
+## You don’t get yourself become full of hate to deal with CuxtD - its deformational acts - started in 18th century probably for an abundant history of robbing.
+
+## PracticingTheArtOfNotResponding
+## HatersAreLikeNeverExpiringFeetBlendedKimchi - AlwaysRefreshingly MicrobeReproductive - catering well.
 
 
 ## Low class humor:
