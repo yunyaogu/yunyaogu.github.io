@@ -49,7 +49,7 @@
 ![Downloadable](https://i.postimg.cc/jC0Z4wmV/2459.jpg)
 
 ---
-## You don’t get yourself become full of hate to deal with CuxtD - its deformational acts - started in 18th century probably for an abundant history of robbing.
+## You don’t get yourself become full of hate to deal with CuxtD - its defamational acts - started in 18th century probably for an abundant history of robbing.
 
 ## PracticingTheArtOfNotResponding
 ## HatersAreLikeNeverExpiringFeetBlendedKimchi - AlwaysRefreshingly MicrobeReproductive - catering well.
