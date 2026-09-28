@@ -18,8 +18,6 @@
 
 
 # ReddeningNeckThanJudging
-# Less Judging to support all types of work.
-# No shame to own that I carry Asperger gene.
 
 
 # Now practicing telling more low class jokes to network, or simply keeping up with #AlphaTrend like pulling out thick neck.
