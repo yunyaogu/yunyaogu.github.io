@@ -4,6 +4,8 @@
 ### #NoAffiliationWithDesignEducationalProgram ###PermanentlyDeletedRISDContactToDisassociate #OwnThatI'mAFailedDesignerWithTwo4/5KPI
 ## Firm Believer of Hindu culture heritage, Brazilian Portuguese Learner, Proactive Judaism Converter
 ## Selfless Identity Believer
+## Brazilian Barbecue cuisine Learner
+## Turning Corporate Pride N Prejudice into Nurishment 
 
 
 ## 震旦保险别找我找王桂云 
@@ -32,12 +34,6 @@
 ![Downloadable](https://i.postimg.cc/t4MmGLnd/IMG-5666.jpg)
 
 ![Downloadable](https://i.postimg.cc/FsGZzkhw/IMG-6295.png)
-
-![Downloadable](https://i.postimg.cc/VvgjJ2PC/IMG-6296.jpg)
-
-![Downloadable](https://i.postimg.cc/hvDmRMQD/IMG-6297.jpg)
-
-![Downloadable](https://i.postimg.cc/vBMg5Xzh/IMG-6298.jpg)
 
 ![Downloadable](https://i.postimg.cc/bwz17N3p/IMG-9795.jpg)
 ---
