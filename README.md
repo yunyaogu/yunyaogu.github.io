@@ -19,9 +19,7 @@
 
 # ReddeningNeckThanJudging
 
-
-# Now practicing telling more low class jokes to network, or simply keeping up with #AlphaTrend like pulling out thick neck.
-# DM if you’re into pygame creation. 
+# DM if you’re into pygame 
 
 ---
 ## IMAGE ( do check my English teaching blog to know me)
