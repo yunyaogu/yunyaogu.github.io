@@ -61,7 +61,7 @@ LinkedIn link: [linkedin](https://www.linkedin.com/in/yunyao-gu/)
 
 CV:  [CV](https://drive.google.com/file/d/1Isr0sbO6hZ5Xd7E7HQZVEIhZbIbvnkvt/view?pli=1)
 
-Credential： [CV](https://credential.gsb.stanford.edu/check/F55AF3E789790E3519666697ECE0A3BFC406DDC83FFD5EC2E27B85930B249F1CblFOcHhaZGVLVDR6WWtZeEtSRDhyOEQyVjhURmIvbzF1bDNQUUo1TVA2L0xqQVky)
+Credential： [Certificate](https://credential.gsb.stanford.edu/check/F55AF3E789790E3519666697ECE0A3BFC406DDC83FFD5EC2E27B85930B249F1CblFOcHhaZGVLVDR6WWtZeEtSRDhyOEQyVjhURmIvbzF1bDNQUUo1TVA2L0xqQVky)
 
 Culture, Civilization, Conscience Preservation Foundation link: [Pay It Forward/Travel Log called Capitalism's Opposite Word Is Mexico](https://github.com/yunyaogu/PayItForward)
 
