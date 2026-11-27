@@ -6,7 +6,6 @@
 ## Selfless Identity Believer
 ## Brazilian Barbecue cuisine Learner
 ## Turning Corporate Pride N Prejudice into Nurishment 
-## #CelebrateCivilization
 ## #DesignToDecolonize
 ## #LessEmpericalDesign
 
