@@ -6,7 +6,9 @@
 ## Selfless Identity Believer
 ## Brazilian Barbecue cuisine Learner
 ## Turning Corporate Pride N Prejudice into Nurishment 
-
+## #CelebrateCivilization
+## #DesignToDecolonize
+## #LessEmpericalDesign
 
 ## 震旦保险别找我找王桂云 
 ## 您胆大您下海 HPV全家福您值得拥有
